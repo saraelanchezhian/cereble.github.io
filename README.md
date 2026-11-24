@@ -1,1 +1,1 @@
-cereble.github.io
+cereble.net
